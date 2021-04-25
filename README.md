@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @lucahendricks
+- 👀 I’m interested in graphic design
+- 📫 E-Mail: hendricks.luca@gmx.de
